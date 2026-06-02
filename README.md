@@ -1,1 +1,0 @@
-# bluestock-mf-capstone
